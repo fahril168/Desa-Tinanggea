@@ -1,2 +1,0 @@
-# Desa-Tinanggea
-## TABMFOMOSMGDOMV
